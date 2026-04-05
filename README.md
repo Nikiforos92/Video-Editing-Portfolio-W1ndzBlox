@@ -23,5 +23,14 @@
 - 🔗 [SETTING SAIL with a SHIP for the MOST GODLY BRAINROT](https://www.youtube.com/watch?v=D7bEa7OXEnM)
 🇬🇷 Title : [ΣΑΛΠΑΡΩ με το ΠΛΟΙΟ για τα ΠΙΟ GODLY BRAINROT]
 
-- 🔗 [I SPENT €7,582,934 on the BIGGEST WATER SLIDE in Roblox](https://www.youtube.com/watch?v=scF-hu8V3jw)
+- 🔗 [Survive the HEAT for RARE BRAINROT in Roblox!](https://www.youtube.com/watch?v=kqmjmmksPTw&t=11s)
 🇬🇷 Title : [Ξόδεψα 7,582,934€ για την ΜΕΓΑΛΥΤΕΡΗ ΝΕΡΟΤΣΟΥΛΗΘΡΑ στο ROBLOX]
+
+- 🔗 [I became VERY TALL to save the SECRET BRAINROT!](https://www.youtube.com/watch?v=YiJxcGVR38M&t=27s)
+🇬🇷 Title : [Έγινα ΠΟΛΥ ΨΗΛΟΣ για να σώσω τα ΜΥΣΤΙΚΑ BRAINROT]
+
+- 🔗 [I became MICROSCOPIC for the most MYTHICAL BRAINROT!](https://www.youtube.com/watch?v=_2H4k_T1XuE)
+🇬🇷 Title : [Έγινα ΜΙΚΡΟΣΚΟΠΙΚΟΣ για τα πιο ΜΥΘΙΚΑ BRAINROT!]
+
+- 🔗 [Run from the AVALANCHE for BRAINROT in Roblox!](https://www.youtube.com/watch?v=WEkuOryQpKA&t=5s)
+🇬🇷 Title : [Τρέχα από την ΧΙΟΝΟΣΤΙΒΑΔΑ για BRAINROT στο ROBLOX]
